@@ -13,7 +13,7 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is I want to be bald someday
+* Something interesting about me is i like eating grilled buff salmon dripped in veggie oil
 * Ask Mr. Vu anything: Would u prefer to be a monk or a bald teacher teaching computer science
 * List your sports and extracurriculars you participate in
 Track and field. 100m and 200m. I AM NOAH LYLES
