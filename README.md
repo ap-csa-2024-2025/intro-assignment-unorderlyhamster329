@@ -13,11 +13,11 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is q8ewq98yewq98
-* Ask Mr. Vu anything: aaj ahahahafsasdfefeww2121
+* Something interesting about me is I want to be bald someday
+* Ask Mr. Vu anything: Would u prefer to be a monk or a bald teacher teaching computer science
 * List your sports and extracurriculars you participate in
-edwdwdawddwq;;dwq;dwq;dw;d;wqrjeiqjitjiqjtr; LALALALALALALALALLALAALWLAWLLALALWALWLAWLWLALWLWLALAWLWLALWALWLALWALWLALWA ALALWLALWLALAW
-LLWALWLAWLWLAWLl 
+Track and field. 100m and 200m. I AM NOAH LYLES
+
 Scale of the P. Trinh.
 Reboil. 
 Twin Colons.
