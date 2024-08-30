@@ -3,7 +3,7 @@
 # intro-assignment
 
 ## Instructions
-1. Fork the assignment from GitHub classroom.
+1. Fark the assignment from GitHub classroom.
 2. Open Visual Studio (VS) Code on the computer.
 3. On the bottom left, click the person icon, and login to your GitHub account.
 4. Clone the correct repository.
@@ -17,4 +17,10 @@ Answer the questions below
 * Ask Mr. Vu anything: aaj ahahahafsasdfefeww2121
 * List your sports and extracurriculars you participate in
 edwdwdawddwq;;dwq;dwq;dw;d;wqrjeiqjitjiqjtr; LALALALALALALALALLALAALWLAWLLALALWALWLAWLWLALWLWLALAWLWLALWALWLALWALWLALWA ALALWLALWLALAW
-LLWALWLAWLWLAWLl
+LLWALWLAWLWLAWLl 
+Scale of the P. Trinh.
+Reboil. 
+Twin Colons.
+
+Nine Foods. Polarized Microwave. Chicken and Rice. Between Fruits and Sugars. Hollow Trinh.
+
